@@ -1,1 +1,0 @@
-# ApexLegends_cfgs
